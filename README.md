@@ -1,1 +1,0 @@
-# wadera-associates-data-marketplace
